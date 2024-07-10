@@ -14,3 +14,9 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+
+hii im currently working on building my very first site, a personal website!!
+im currently learning to  'code' ? in html and css, as a total noobie
+you can reach me through my linkedin which is on my profile!
+pronouns: she/her they/them
+a fun fact about me is that i majored in korean studies and speak 5 languages hehe
